@@ -1,1 +1,0 @@
-halo, namaku adalah Tomi Kiyat moko
