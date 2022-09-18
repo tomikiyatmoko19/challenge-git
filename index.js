@@ -1,1 +1,1 @@
-halo, namaku adalah Tomi Kiyat moko
+Halo, namaku adalah Tomi Kiyat Moko
